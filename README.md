@@ -1,1 +1,0 @@
-# situacao_aprendizado
